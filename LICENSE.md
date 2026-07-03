@@ -1,4 +1,4 @@
-# 
+# Custom CCleaner add-ons for Mac OS | Best CCleaner add-ons for PC Windows. Featuring data export and private settings — optimized for maximum performance on every platform.
 
 
 
